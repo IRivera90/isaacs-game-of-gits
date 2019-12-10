@@ -5,3 +5,6 @@ That is, until he was murdered with an axe.
 
 But then ....
 The great doctors of the kingdom saved his life, but he was horribly disfigured forever.
+
+And then...
+He was poisoned and could not be saved. 
